@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aliza Amjad.
-- 👀 I’m Interested In Blackpink and BTS K-pop Groups.
-- 🌱 I’m Currently In Grade 10.
+- 👀 I’m Interested In Different K-pop Groups Like Blackpink and BTS.
+- 🌱 I’m Currently In Grade 12.
 - 💞️ I’m Looking To Collaborate On Anything.
 - 📫 How To Reach Me: You Can Email Me Using My Email --> aliza.amjad@gmail.com   Or Use  alizaa24@cismanila.org
